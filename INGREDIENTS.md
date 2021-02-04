@@ -1,0 +1,25 @@
+# Preparation for chocolate cake
+
+THE MOST AMAZING CHOCOLATE CAKE
+
+butter and flour for coating and dusting the cake pan
+3 cups all-purpose flour
+3 cups granulated sugar
+1 1/2 cups unsweetened cocoa powder
+1 tablespoon baking soda
+1 1/2 teaspoons baking powder
+1 1/2 teaspoons salt
+4 large eggs
+1 1/2 cups buttermilk
+1 1/2 cups warm water
+1/2 cup vegetable oil
+2 teaspoons vanilla extract
+
+CHOCOLATE CREAM CHEESE BUTTERCREAM FROSTING
+
+1 1/2 cups butter softened
+8 oz cream cheese softened
+1 1/2 cups unsweetened cocoa powder
+3 teaspoons vanilla extract
+7-8 cups powdered sugar
+about 1/4 cup milk as needed
